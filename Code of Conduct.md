@@ -104,11 +104,13 @@ Instructor has no obligation to provide extra support or time for unexcused abse
 
 
 ### 9. Attention
-Attention is when you are focusing on what is being tought in class and not having your fouces an anything else.
+Attention is when you are focusing on what is being tought in class and not having your focus on anything else.
 
-Examples of distraction acceptable would be looking at your phone quickly of sending a message if it is a emergency, if you need to call someone beacuase of a emergency then you can step out of the classroom.
+Examples of acceptable distractions would be looking at your phone quickly to see a message; if it is a emergency, then you can step out of the classroom raising your hand and asking the instructor first.
 
-The cost for distraction would be getting a 0 for participation for that class. 
+The cost for distraction would be getting a 0 for participation for that class.
+
+The reward for paying attention in class is knowledge. :)
 
 ### 10. Contact info
 Heidi Ellis - ellis@wne.edu
